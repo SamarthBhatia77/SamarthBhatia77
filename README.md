@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🙋🏻‍♂️ Hi, I'm Samarth!
 👨🏻‍💻 Computer Science student @ BITS Pilani, Hyderabad Campus<br>🎯 Exploring domains like Machine Learning, Generative AI and Web Development<br>✨ When the road gets tough, the tough get going
 
 
