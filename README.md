@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/0169e1e9-b422-43e7-a472-b3cbe20a6c17)
+![Image](https://github.com/user-attachments/assets/de4c2672-4297-4549-95f8-b8029f6ea907)
 
 # 🙋🏻‍♂️ Hi, I'm Samarth!
 👨🏻‍💻 Computer Science student @ BITS Pilani, Hyderabad Campus<br>🎯 Exploring domains like Machine Learning, Generative AI and Web Development<br>✨ When the road gets tough, the tough get going
